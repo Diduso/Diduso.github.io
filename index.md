@@ -15,3 +15,8 @@ As if this is not enough his beard hair, spit and skin pores offer extraordinary
 Therefore he is almost the perfect burglar and an exceptional phenomenon. He becomes friends with Artemis Fowl and fascinates his criminal mind.
 His horrible smell and extreme sun-sensitivity should not be forgotten.
 
+
+> "A criminal? A criminal, that's what you think I am?
+> I am so much more than a criminal.
+> Well, um, technically, most of what I do is criminal activity, but I'm also an artist."
+> "You're picking my pocket."
