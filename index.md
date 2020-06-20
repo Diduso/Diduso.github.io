@@ -16,7 +16,12 @@ Therefore he is almost the perfect burglar and an exceptional phenomenon. He bec
 His horrible smell and extreme sun-sensitivity should not be forgotten.
 
 
-> "A criminal? A criminal, that's what you think I am?
+> "A criminal? A criminal, that's what you think I am?  
 > I am so much more than a criminal.
-> Well, um, technically, most of what I do is criminal activity, but I'm also an artist."
+> Well, um, technically, most of what I do is criminal activity, but I'm also an artist."  
 > "You're picking my pocket."
+
+<img src="https://vignette.wikia.nocookie.net/artemisfowl/images/b/bc/Mulch-Diggums-Opal-Deception-GN.PNG/revision/latest/scale-to-width-down/310?cb=20181213055159"/>
+
+<img src="https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2F66.media.tumblr.com%2Fc6b4a0c6776c15c0bc725170eb77cca4%2Ftumblr_inline_o9x74gG3e91r8mwrd_400.jpg&f=1&nofb=1"/>
+
